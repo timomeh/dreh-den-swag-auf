@@ -1,4 +1,10 @@
 dreh-den-swag-auf
 =================
 
-Site under http://swag.verwebbt.de
+Steige aus dem Bett /  
+dreh den Swag auf /  
+schaue kurz in den Spiegel /  
+sag "Whattup" /  
+yeeeeeah /  
+I'm gettin money /  
+ooooooohhhh  
